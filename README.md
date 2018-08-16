@@ -1,3 +1,3 @@
-YO!-Shobhik changed this-ye le naya change
+YO!-Shobhi changed this-ye le naya change
 This is Readme.
-A new line- Shobhiks - ye le naya change
+A new line- Shobhiks - ye le nare change
